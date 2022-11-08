@@ -1,4 +1,4 @@
-### Resumen 4 y 5
+### Resumen 6 y 7
 ### Adriana López Calderón 
 ### 2019293588
 _____
